@@ -6,6 +6,8 @@
 
 - 💬 Ask me about **Appian, Cybersecurity**
 
+- Sakinly Muslim mental wellness app https://apps.apple.com/us/app/sakinly/id6758906653
+
 - ⚡ Fun fact **I think i'm funny**
 
 <h3 align="left">Connect with me:</h3>
