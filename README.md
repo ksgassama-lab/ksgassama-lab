@@ -6,7 +6,7 @@
 
 - 💬 Ask me about **Appian, Cybersecurity**
 
-- Sakinly Muslim mental wellness app https://apps.apple.com/us/app/sakinly/id6758906653
+- Published Sakinly Muslim mental wellness app that connects your emotions with Quran, Dua and Dhikr  https://apps.apple.com/us/app/sakinly/id6758906653
 
 - ⚡ Fun fact **I think i'm funny**
 
