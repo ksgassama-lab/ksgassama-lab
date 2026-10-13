@@ -1,6 +1,6 @@
 # Hi 👋, I'm kaddy
 
-- 🔭 Appian Associate Developer | B.S. Cybersecurity & Information Assurance
+- 🔭 Appian Associate Developer | M.S. Cybersecurity & Information Assurance
 - CompTIA Secuirty +, PenTest+, Network +,  Project+ 
 - 👯 I'm looking to collaborate on Open source Cybersecurity projects 
 
